@@ -15,8 +15,8 @@
 - Roll into small balls about the size of a teaspoon
   - Plastic gloves are helpful for this step 
   - Place on cookie sheet with parchment paper 
+  - Should make about 25 cookies or so 
 - Bake at 325 F for about 25 minutes 
   - You're done once you see a little bit of brown on the outside 
   - Sample one and make sure it's not too gooey on the inside 
 - Cool for about 20 minutes.
-
