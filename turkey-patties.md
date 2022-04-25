@@ -16,7 +16,8 @@
 
 ## Instructions: 
 - In a medium bowl, stir together the turkey, 1/4 cup basil, 1/4 tsp salt
-  and garlic powder.  Form into 4 patties
+  and garlic powder.  
+  - Form into 4 patties
 - In a large nonstick skillet, heat 1 tablespoon oil over medium high heat
   - Swirl to coat the bottom of the pan
 - Cook the patties for 5 minutes
