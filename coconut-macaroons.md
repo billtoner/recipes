@@ -1,4 +1,4 @@
-# Coconut Cookies 
+# Coconut Macaroons
 
 
 ## Ingredients
