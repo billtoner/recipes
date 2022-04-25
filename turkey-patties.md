@@ -24,5 +24,5 @@
   - Turn over and cook for 4 minutes
 - Cook the mushrooms, onion and cayenne for 4 minutes or until the onion is soft
   - Stir frequently.  Remove from heat
-- Stir in remaining 1 sbsp basil and 1/4 tsp salt
+- Stir in remaining 1 tbsp basil and 1/4 tsp salt
 - To serve, spread the mustard over the patties.  Top with mushroom mixture 
